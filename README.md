@@ -33,7 +33,7 @@ I think life is full of surprises. All you have to do is go with the flow and ta
 
 :black_small_square: :house: I love being with my family and friends, they are everything to me.  
 :black_small_square: :small_airplane: I Love to visit new places.  
-:black_small_square: :soccer: I love playing cageball in free time.  
+:black_small_square: :soccer: I love playing soccer in free time.  
 :black_small_square: :guitar: Playing guitar and :microphone: singing,  
 :black_small_square: :red_car: Passionate about cars.
 
